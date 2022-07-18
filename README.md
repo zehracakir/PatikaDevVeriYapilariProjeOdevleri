@@ -1,0 +1,1 @@
+# PatikaDevVeriYap-lar-ProjeOdevleri
